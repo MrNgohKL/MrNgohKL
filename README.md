@@ -1,2 +1,2 @@
--- the blooket scripts has been corrupted my friends and me made a website with more scripts go visit it : https://schoolcheats.net/blooket/
+-- the blooket scripts has been corrupted my friends and me gave the website with more scripts go visit it : https://schoolcheats.net/blooket/
 -- after u are in that page just scroll down
