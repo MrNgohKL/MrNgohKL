@@ -1,7 +1,2 @@
-- hello
-- this is MrNgohKL
-
-<!---
-MrNgohKL/MrNgohKL is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+-- the blooket scripts has been corrupted my friends and me made a website with more scripts go visit it : https://schoolcheats.net/blooket/
+-- after u are in that page just scroll down
